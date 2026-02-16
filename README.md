@@ -1,0 +1,1 @@
+# Apdro-in-ana-Pamatuzdevums-apdro-in-anas-veids.-Papildu-uzdevums-cenas-apr-ins-p-c-riska.
